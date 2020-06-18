@@ -4,6 +4,16 @@ Harvey Reginald Specter, J. D. is a former corporate attorney, one of the name p
 
 After being promoted to the position of senior partner at Pearson Hardman in 2011, he hired Mike Ross, a veritable genius with a photographic memory who was able to pass the bar exam despite not attending law school, as his associate.
 
+## Harvey's Character Traits
+
+* tremendously loyal
+* he's a caring person
+* he's witty
+* he's great at what he does
+* he never gives up
+* always knows the right to say
+* he treats everyone equally
+
 
 
 
