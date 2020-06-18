@@ -15,5 +15,8 @@ After being promoted to the position of senior partner at Pearson Hardman in 201
 * he treats everyone equally
 
 
+>My whole life, I've done what I think was right, but there's always someone somewhere who hates me for it because they think I'm breaking the rules. Well, rules aren't right or wrong. Every line I've ever crossed, I'd do it again because I am fine with what's in my soul.
+
+
 
 
